@@ -2,6 +2,20 @@
 
 Welcome to my blog! A place where I joke, rant, and journal just about everything.
 
+### Afternoon Contemplation
+
+14:18  
+25032021
+
+I've been trying to figure out what direction I want to take with this blog. So far it's extremely unprofessional and reminds me a lot of Twitter, minus the followers. One part of me wants to dial it back so I don't get flak from potentially important viewers. The other half of me wants to keep it raw. Let's face it, no one is going to continue reading something that lacks flavor. Yet at the same time no one is going to hire or approve of an obvious smart ass. More thought needs to be put into this on my end. Until then, I'll continue writing sloppy uncensored posts about life.
+
+Cheers,  
+Sheley
+
+P.S. If you're a future employeer or current employer for that matter please take this blog/site with a grain of salt. No one actuals looks at it anyway, at least I hope not.
+
+![Decisions](https://media.giphy.com/media/1XgSqCWMonbLLpxNev/giphy.gif)
+
 ### The Liability
 
 12:45  

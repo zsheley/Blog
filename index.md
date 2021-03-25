@@ -13,6 +13,8 @@ Cheers,
 
 -Sheley
 
+![That Morning Coffee Feeling](https://media.giphy.com/media/lpjnUZXCDyFLq/giphy.gif)
+
 ### Third Time's the Charm
 
 22:12

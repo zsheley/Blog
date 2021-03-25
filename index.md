@@ -14,7 +14,7 @@ Sheley
 
 P.S. If you're a future employer, current employer, teacher, or friend for that matter please take this blog/site with a grain of salt. No one actuals looks at it anyway, at least I hope not.
 
-![Decisions](https://media.giphy.com/media/1XgSqCWMonbLLpxNev/giphy.gif)
+![Decisions](https://media.giphy.com/media/dVd8zPWXLz97fV41zf/giphy.gif)
 
 ### The Liability
 

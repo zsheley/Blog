@@ -7,7 +7,7 @@ Welcome to my blog! A place where I joke, rant, and journal just about everythin
 19:12  
 25032021
 
-My day was pretty good, got up early as fuck, got ready, napped, hit the books hard, napped, worked out, got screamed at, missed dinner, and now writing this blog post. I'm actually really proud of my workout today. I missed last weeks and I didn't include cardio today but man I still killed it.
+My day was pretty good, got up early as fuck, got ready, napped, hit the books hard, napped, worked out, got screamed at, missed dinner, and now writing this blog post. I'm actually really proud of my workout today. I missed last week's and I didn't include cardio today but man I still killed it.
 
 | Exercise | Reps |
 | -------- | ---- |
@@ -15,7 +15,7 @@ My day was pretty good, got up early as fuck, got ready, napped, hit the books h
 | Push-ups | 40 |
 | Marine Corps Crunches | 110 |
 
-Hopefully, once I'm able to drive/get dropped off on Mondays and Tuesdays I'll run over to the VUU football field and flip their big ass tire. I just need to find a way to incorporate my cardio. I want to be running at least 5 miles. Normally that would be nothing, but I'm really out of shape and have no one to push me. It's crazy **APPARENTLY** I have been running 1.5 miles in 17.49 mins. I'm not sure how that's possible because I can walk that far faster. Maybe my mileage is just super off because at the last Poolee Function I ran 1.5 miles in 11.38 mins. Who knows maybe I'm ass at home because subconsciously I knew I could slack off and get away with it. Whatever the case may be, my mind is absolutely **BOGGLED**. Anyway, after my workout I came in for a shower and I felt and looked good (I thought so at least). I think my next workout will look something like this:
+Hopefully, once I'm able to drive/get dropped off on Mondays and Tuesdays I'll run over to the VUU football field and flip their big ass tire. I just need to find a way to incorporate my cardio. I want to be running at least 5 miles. Normally, that would be nothing, but I'm really out of shape and have no one to push me. It's crazy **APPARENTLY** I have been running 1.5 miles in 17.49 mins. I'm not sure how that's possible because I can walk that faster. Maybe my mileage is just super off, because at the last Poolee Function I ran 1.5 miles in 11.38 mins. Who knows maybe I'm ass at home because subconsciously I know I could slack off and get away with it. Whatever the case may be, my mind is absolutely **BOGGLED**. Anyway, after my workout I came in for a shower and I felt and looked good (I thought so at least). I think my next workout will look something like this:
 
 | Exercise | Reps |
 | -------- | ---- |
@@ -28,6 +28,9 @@ Oh, before I finish up this post I forgot to mention a crucial life decision I'v
 
 Get some!  
 Sheley
+
+![Goggins Comp](https://youtu.be/DS0ed93UQeY)  
+You can never be too motivated by Goggins! Enjoy.
 
 ### Afternoon Contemplation
 

@@ -10,7 +10,7 @@ Welcome to my blog! A place where I joke, rant, and journal just about everythin
 MW just had their first fire drill in-person since March of last year. I'm currently in Gov, but since our teacher isn't here in person I'm zooming in the senior commons. I think I'm supposed to be in the cafeteria, but who wants to sit down there with a bunch of freshman? No one has said anything to me yet so I'm just going to play it cool until that day comes. I was really anxious out in the parking lot though. I kept thinking "Uh oh they're looking for me... I'm dead." However, that wasn't the case. At least I don't think it was. Oh well. You live and you learn.
 
 Cheers,  
--Sheley
+Sheley
 
 ### GOOOOOOOD MORNING VIETNAM!!!!
 
@@ -20,7 +20,7 @@ Cheers,
 Fuck, Fuck, Fuck. As usual I woke up completely exhausted so I decided I'd jump start my day with a "little" coffee. It's only 09:50 and I've already drank roughly 4 cups of Starbucks double shot. My limbs refuse to stop moving and my mind is racing. I love it. Thanks Haley for bringing in the Keurig (I hope that's how you spell it)!
 
 Cheers,  
--Sheley
+Sheley
 
 ![That Morning Coffee Feeling](https://media.giphy.com/media/lpjnUZXCDyFLq/giphy.gif)
 
@@ -33,7 +33,7 @@ Ah man today has been quite the rodeo! Zoller, "Bill", and I snatched the fridge
 At least the high end is furnished now. I also started playing *The Witcher III: Wild Hunt*. Not only was I extremely impressed with the graphics and overall play style of the game, but the story is elegantly written (so far at least). Aside from that and listening to the most prententious conversation I have ever heard between my two absolutle least favorite people, that's been my day. School is a joke, both in-person and online. Teachers tend to ramble on about things barely related to what our focus of study is or they hardly talk at all. Either way it leaves me absolutely clueless in the class. I also don't understand why I HAVE to be in the Zoom call if I'm in-person. I mean really, I'm driving an hour away just to stare at a screen and watch them "lecture" while I'm sitting in the same room. It's whatever, I have until June 18th then I'm gone.
 
 Cheers,  
--Sheley
+Sheley
 
 P.S. The car driver is an absolute maniac. I thought her driving was bad freshman year, well it's much much worse. I swear she tried to hit every fucking puddle on the way home today. One of the ones she hit actually woke me up because it felt like we were re-enacting a scene from Tokyo Drift.
 
@@ -48,7 +48,7 @@ Just wanted to make a quick post in appreciation of the MLWGS WiFi. The last tim
 a 40Gb program at home it took me 3 days. Well, not today, I downloaded the entire Witcher III + all DLC in a matter of 20 mins. If that's not fast I don't know what is.
 
 Cheers,  
--Sheley
+Sheley
 
 ### The Big Blog
 
@@ -61,4 +61,4 @@ Today I made a blog. It was a pain in the ass. I'll probably forget about said b
 The End.
 
 Cheers,  
--Sheley
+Sheley

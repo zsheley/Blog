@@ -12,7 +12,7 @@ I've been trying to figure out what direction I want to take with this blog. So 
 Cheers,  
 Sheley
 
-P.S. If you're a future employeer or current employer for that matter please take this blog/site with a grain of salt. No one actuals looks at it anyway, at least I hope not.
+P.S. If you're a future employer, current employer, teacher, or friend for that matter please take this blog/site with a grain of salt. No one actuals looks at it anyway, at least I hope not.
 
 ![Decisions](https://media.giphy.com/media/1XgSqCWMonbLLpxNev/giphy.gif)
 

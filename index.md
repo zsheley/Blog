@@ -2,6 +2,17 @@
 
 Welcome to my blog! A place where I joke, rant, and journal just about everything.
 
+### GOOOOOOOD MORNING VIETNAM!!!!
+
+09:51
+25032021
+
+Fuck, Fuck, Fuck. As usual I woke up completely exhausted so I decided I'd jump start my day with a "little" coffee. It's only 09:50 and I've already drank roughly 4 cups of Starbucks double shot. My limbs refuse to stp moving and my mind is racing. I love it. Thanks Haley for bringing in the Keurig (I hope that's how you spell it)!
+
+Cheers,
+
+-Sheley
+
 ### Third Time's the Charm
 
 22:12

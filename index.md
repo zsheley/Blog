@@ -29,7 +29,7 @@ Oh, before I finish up this post I forgot to mention a crucial life decision I'v
 Get some!  
 Sheley
 
-![Goggins Comp](https://youtu.be/DS0ed93UQeY)  
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/DS0ed93UQeY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>    
 You can never be too motivated by Goggins! Enjoy.
 
 ### Afternoon Contemplation

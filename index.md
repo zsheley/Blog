@@ -2,6 +2,18 @@
 
 Welcome to my blog! A place where I joke, rant, and journal just about everything.
 
+### Horror
+
+17:23  
+01042021
+
+Before anyone starts jumping to conclusions; no, I did not pull any pranks today and no, I was not pranked today. I'll tell you what I did do today though. I made the awful realization that in a matter of a few short months I won't see some of my best friends ever again. I'm so shook up about this that I think I'll even miss Maggie and even the people I hate there. FUCK! I'm so sad. Then I started thinking about all the lost time due to COVID. I wish I could do something to slow things down. At the same time though I yearn to get out of this house and into the fleet. I hate feelings. I might even shed a single tear. 
+
+:'(  
+Sheley
+
+![FUCK I'M SAD](https://media.giphy.com/media/TU76e2JHkPchG/giphy.gif)
+
 ### Last Post of the Day (Probably)
 
 19:12  

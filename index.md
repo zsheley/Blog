@@ -2,6 +2,17 @@
 
 Welcome to my blog! A place where I joke, rant, and journal just about everything.
 
+### I CALLED IT!
+
+20:54
+20221023
+
+I called it! I knew I'd forget about this shit in a week! Took a drunk me to even remeber I had a website. I guess I'd better make a post to let future me or that "Russian Hacker" know whats going on. I joined the USMC like I said I would, shits been a roller coaster. Somehow I've managed to actually get with a group that does something other than paperwork. I'm a radio operator with a FiST. I don't give a fuck how cheesy it sounds I love this statistic, life expectancy of an RO in Vietnam ~7 sec, life expectancy of an RO in the middle east ~14. I don't give a fly fuck though, my dumbass is going to slay bodies with a 10ft whip out my ass one way or another. A year in and I've learned this much about myself. I'm addicted to booze and nic, I do nothing but fuck and fight in my spare time. I say I hate the Corps and I'll only do my 4 years but I love it too much. I'll probably be here till I die. Which won't happen because I'm too goddamn stubborn. Anyway, if I remeber anything about this in the morning I'll make an actual comprehensive post but until then fuck it, YOLO.
+
+P.S. Two quotes in the Corps that will always live with me -
+"Sheley, you're every fucking CPLS, no ROs wet dream!!!" -Yearwood
+"Sheley, you fuck and you fight so you're cool in my book." -Esqi
+
 ### Horror
 
 17:23  
